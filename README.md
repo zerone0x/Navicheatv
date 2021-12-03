@@ -1,0 +1,2 @@
+# Navicheatv
+cheat navi
